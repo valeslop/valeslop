@@ -1,7 +1,12 @@
-<p align="center">
-<img width="735" height="579" alt="207196c17331f7803e8601f1b5582c39" src="https://github.com/user-attachments/assets/08252b01-cc68-47ff-ad56-eb7ea638eba1" />
 
-</a>
-</p>
-<p align="center">
-<img width="500" height="500" alt="207196c17331f7803e8601f1b5582c39" src="https://files.catbox.moe/bibzmb.png" />
+<img width="498" height="455" alt="vriska" src="https://github.com/user-attachments/assets/539c9fdc-3eb3-4a81-a110-2fcdd0acec99" />
+
+
+<details open>
+<summary>ⓘ</summary>
+vriska n bro strider ponies iwc. i Do not care if they are pixels
+  
+iM USUALLY OFFTAB AND SOCIALLY AWKWARD
+
+OK BYE I LOVE MY FRIENDS
+</details>
