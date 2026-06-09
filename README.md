@@ -10,3 +10,8 @@ iM USUALLY OFFTAB AND SOCIALLY AWKWARD
 
 OK BYE I LOVE MY FRIENDS
 </details>
+
+
+<img width="218" height="212" alt="HKUBYbVWwAAwSF2" src="https://github.com/user-attachments/assets/53b03d96-ea1c-4589-8678-bdaced399931" /><img width="218" height="212" alt="HKTyeYAXQAAc38O" src="https://github.com/user-attachments/assets/61fc4808-740a-4db0-9781-3053611f98c1" />
+
+
