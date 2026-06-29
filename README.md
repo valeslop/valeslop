@@ -8,3 +8,5 @@
 
 
 ![](https://64.media.tumblr.com/8d5a1838efc91d36e377cd4669a6bc6e/bdcdc2dfe6a5626e-54/s250x400/2ebbb69faaf2c28dac0ee07b2b7be21318fb6a34.pnj)![](https://64.media.tumblr.com/a0820ae82178b799fcee88807ddf4f27/bdcdc2dfe6a5626e-51/s250x400/882dfacf4985f728825223a7bc81875ca0b502cf.pnj)![](https://64.media.tumblr.com/7b02978003659d1bb25bd9800abd5035/bdcdc2dfe6a5626e-99/s250x400/4d04c9a311eb71a4bbda9468bf87b3ad07b4525b.pnj)![](https://64.media.tumblr.com/3e88aebcd3cc3c20b9f9749796b8ef88/bdcdc2dfe6a5626e-91/s250x400/574833bacee3d0a99f6f0ad4a954d42b60e27ed3.pnj)
+
+RIP SHITTYMATSU 2025-2026
