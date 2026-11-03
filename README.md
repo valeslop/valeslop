@@ -1,8 +1,19 @@
-<img width="500" height="500" alt="b47739bdd49978a1d015fd06912819dd" src="https://github.com/user-attachments/assets/d94f397b-99d5-4ff5-b244-b4fe666e9a26" />
+<details>
+  <summary>ponytown dni</summary>
+  
+  anyone under the age of 13 or above 18
+  
+  anyone associated with the protree + pros & darks
 
+  anyone with the fiction ≠ reality mindset
+  
+  overly rude people. jokes are ok but please make it obvious that ur joking thanks 
+  
+  anyone who has that "freaky" humor/sexual humor or whatever you freaks call yourselves
 
-im barely active on this game
+  if ur proud of sexualizing characters publicly + teenage/minor characters
 
-read strawpage for more info
+  "puppy" people most of you guys are gross and horrible
+</details>
 
-<img width="498" height="417" alt="tervo-solar-opposites" src="https://github.com/user-attachments/assets/ba92716f-7031-4d60-ae1b-bfbc64478adc" />
+<img width="536" height="736" alt="5d6ef11158cc4f3991aa73183318edbd" src="https://github.com/user-attachments/assets/f7db2a5f-9ac7-455e-bb49-31a5c3ee7a87" />
