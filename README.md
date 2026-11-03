@@ -9,7 +9,7 @@
   
   overly rude people. jokes are ok but please make it obvious that ur joking thanks 
   
-  anyone who has that "freaky" humor/sexual humor or whatever you freaks call yourselves
+  anyone who has that "freaky" humor/sexual humor or whatever
 
   if ur proud of sexualizing characters publicly + teenage/minor characters
 
