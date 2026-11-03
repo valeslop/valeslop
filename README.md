@@ -11,7 +11,7 @@
   
   anyone who has that "freaky" humor/sexual humor or whatever
 
-  anyone proud of sexualizing characters publicly + involving teenage/minor characters
+  anyone proud of sexualizing characters publicly + involving characters that are minors/teenagers or children
 
   "puppy" people most of you guys are gross and horrible
 </details>
