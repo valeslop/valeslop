@@ -1,5 +1,5 @@
 <details>
-  <summary>ponytown dni</summary>
+  <summary>dni</summary>
   
   anyone under the age of 13 or above 18
   
